@@ -1,4 +1,5 @@
-Absolutely, Rishi. Here’s a *technophile’s dream* version of your README—amped up with high-impact techno-lingo and professional gravitas, yet still structured and polished to perfection:
+Y'all can find the apk in the given drive links above :
+Ver 1, Ver 2, upcoming.
 
 ---
 
